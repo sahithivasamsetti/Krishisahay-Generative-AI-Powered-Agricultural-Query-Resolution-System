@@ -1,0 +1,1 @@
+# Krishisahay-Generative-AI-Powered-Agricultural-Query-Resolution-System
